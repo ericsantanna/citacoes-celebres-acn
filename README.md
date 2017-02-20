@@ -12,17 +12,16 @@
 <br>
 <br>
 <br>
-<br>
-<br>
-<br>
 > "...acho que vou deixar um master egg no pdv manager”
 
 &nbsp;&nbsp;&nbsp;&nbsp;- *Pinto, Marcos*
-<hr>
+<br>
+<br>
+<br>
 (Olhando para o martelo de Thor, símbolo do paganismo nórdico)
 > "Essa é a Âncora de Poseidon"
 
 &nbsp;&nbsp;&nbsp;&nbsp;- *Pinto, Marcos*
-
----
-
+<br>
+<br>
+<br>
