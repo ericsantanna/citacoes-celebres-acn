@@ -25,3 +25,9 @@
 <br>
 <br>
 <br>
+> "Cada cachorro que limpe sua base"
+
+&nbsp;&nbsp;&nbsp;&nbsp;- *Sant'Anna, Eric*
+<br>
+<br>
+<br>
