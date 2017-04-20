@@ -31,3 +31,15 @@
 <br>
 <br>
 <br>
+> "Estou gastando como se fosse amanhã"
+
+&nbsp;&nbsp;&nbsp;&nbsp;- *Sant'Anna, Eric*
+<br>
+<br>
+<br>
+> "Você está com a manteiga...e com a faca na mão?"
+
+&nbsp;&nbsp;&nbsp;&nbsp;- *Pinto, Marcos*
+<br>
+<br>
+<br>
