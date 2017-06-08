@@ -49,3 +49,9 @@
 <br>
 <br>
 <br>
+<br>
+<br>
+<br>
+> "Obedece quem pode, manda quem tem juízo"
+
+&nbsp;&nbsp;&nbsp;&nbsp;- *Pinto, Marcos*
