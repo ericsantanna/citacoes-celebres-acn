@@ -52,16 +52,12 @@
 > "Obedece quem pode, manda quem tem juízo"
 
 &nbsp;&nbsp;&nbsp;&nbsp;- *Pinto, Marcos*
-
-&nbsp;&nbsp;&nbsp;&nbsp;- *Costa, Tabata*
 <br>
 <br>
 <br>
 > "Arroz carborizado"
 
 &nbsp;&nbsp;&nbsp;&nbsp;- *Pinto, Marcos*
-
-&nbsp;&nbsp;&nbsp;&nbsp;- *Costa, Tabata*
 <br>
 <br>
 <br>
